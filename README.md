@@ -1,0 +1,2 @@
+# premium-metal-inlay-001-metal-inlay-technique-channe
+Stop losing track of your inlay techniques and channel set variations—centralize every method, material, and project in one structured hub.  This template eliminates the chaos of scattered notes, videos, and material lists by organizing techniques by type, tracking channel set dimensions, and logging project progress. It saves you hours of searchin
